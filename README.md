@@ -6,6 +6,3 @@ Cracked Source Code Files of Gates of Olympus game.
 <br>
 <br>
 <b>Video</b>: https://youtu.be/LaK1zndzUHg
-<br>
-<br>
-<b>Link</b>: https://betcodex.com/item/gates-of-olympus
